@@ -1,2 +1,0 @@
-# WiSO_Pr-fungstrainer_Gastgewerbe
-Abschlussprüfungen WiSo Gastgewerbe
